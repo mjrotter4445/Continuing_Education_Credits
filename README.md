@@ -3,7 +3,7 @@ Continuing Education Certificates 2022
 
 
 ### Overview
-Oxx:
+LEED (Leaders in Energy Efficient Design) CEUs:
   -  LEED Certificate 
  
 <p align="center">
